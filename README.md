@@ -1,1 +1,1 @@
-Don't register my existence. Steer clear.
+Innately talented.
